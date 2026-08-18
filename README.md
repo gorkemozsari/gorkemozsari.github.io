@@ -1,0 +1,1 @@
+# gorkemozsari.github.io
